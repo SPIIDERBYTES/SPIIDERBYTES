@@ -3,12 +3,12 @@
   <img src="https://i.pinimg.com/564x/d1/77/38/d177382a73132fce85fa06984e5b4090.jpg" width="1000"/>
 </div>
 
-``<p align="center">`
+//<p align="center">
 check out my [g](https://postal.123guestbook.com)uestbook ★
 </p>
 
-<p align="center">
-𝗹𝗶𝗻𝗸/sol (★) 𝗵𝗲/they . 𝗼𝘀𝗱𝗱 1-b system
+//<p align="center">
+𝗹𝗶𝗻𝗸/sol (★) 𝗵𝗲/they . [𝗼](https://pronouns.cc/@spoileralertzz)𝘀𝗱𝗱 1-b system
 </p>
 
 <p align="center">
@@ -30,6 +30,7 @@ a rentry about all of that is currently being made so i'll link it when it's fin
 <p align="center">
 𝗽𝗹𝗲𝗮𝘀𝗲 𝗱𝗼𝗻'𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀, inspo is okay; just don't outright copy it!
 </p>
+
 
 <p align="center">
 𝗶 𝗹𝗼𝘃𝗲 𝗺𝘆 𝗽𝘂𝘁𝗲𝗿! 𝗮𝗹𝗹 𝗺𝘆 𝘀𝗶𝗹𝗹𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗿𝗲 𝗶𝗻 𝗶𝘁
