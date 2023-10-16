@@ -8,7 +8,7 @@ check out my [g](https://postal.123guestbook.com)uestbook ★
 </p>
 
 <p align="center">
-link/sol (★) he/they . osdd 1-b system
+𝗹𝗶𝗻𝗸/sol (★) 𝗵𝗲/they . 𝗼𝘀𝗱𝗱 1-b system
 </p>
 
 <p align="center">
@@ -23,12 +23,17 @@ i like homestuck, postal, hypnos lullaby, jet set radio, saw, and alot of other 
 a rentry about all of that is currently being made so i'll link it when it's finished
 </p>
 
+<p align="center">
+𝘄𝗵𝗶𝘀𝗽𝗲𝗿 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 most times, I'm usually afk or offtab.
+</p>
 
-**whisper to interact** most times, I'm usually afk or offtab.
+<p align="center">
+𝗽𝗹𝗲𝗮𝘀𝗲 𝗱𝗼𝗻'𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀, inspo is okay; just don't outright copy it!
+</p>
 
-**please dont copy my skins**, inspo is okay; just don't outright copy it!
-
- **i love all my silly friends** 
+<p align="center">
+𝗶 𝗹𝗼𝘃𝗲 𝗺𝘆 𝗽𝘂𝘁𝗲𝗿! 𝗮𝗹𝗹 𝗺𝘆 𝘀𝗶𝗹𝗹𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗿𝗲 𝗶𝗻 𝗶𝘁
+</p>
 
 <p align="center">
     <img width="1000" src="https://media.discordapp.net/attachments/950989229633208330/965682777003552848/image1-1.gif?ex=653ff82b&is=652d832b&hm=0213dad30b99201115c334a81199a9c7a17a79b350ae2b8a990df66d8617b8f5&=&width=742&height=77" alt="Material Bread logo">
