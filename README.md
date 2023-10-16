@@ -3,11 +3,13 @@
   <img src="https://i.pinimg.com/564x/d1/77/38/d177382a73132fce85fa06984e5b4090.jpg" width="1000"/>
 </div>
 
-//<p align="center">
+> artist is: Stealyourmeal on tumbler
+
+\\<p align="center">
 check out my [g](https://postal.123guestbook.com)uestbook ★
 </p>
 
-//<p align="center">
+\\<p align="center">
 𝗹𝗶𝗻𝗸/sol (★) 𝗵𝗲/they . [𝗼](https://pronouns.cc/@spoileralertzz)𝘀𝗱𝗱 1-b system
 </p>
 
