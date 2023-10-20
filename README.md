@@ -10,7 +10,7 @@ check out my [g](https://postal.123guestbook.com)uestbook ★
 </p>
 
 \\<p align="center">
-𝗹𝗶𝗻𝗸/sol (★) 𝗵𝗲/they . [o](https://pronouns.cc/@spoileralertzz)sdd 1-b system
+link/sol (★) he/they . [o](https://pronouns.cc/@spoileralertzz)sdd 1-b system
 </p>
 
 <p align="center">
