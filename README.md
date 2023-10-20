@@ -46,16 +46,25 @@ a rentry about all of that is currently being made so i'll link it when it's fin
 𝘀𝘁𝗮𝗺𝗽𝘀 𝗰𝗼𝗹𝗹𝗲𝗰𝘁𝗶𝗼𝗻 ✦
 </p>
 
-![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/7d0a193d-0058-4e9b-8103-0b3454b1f64c) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/b9b4e32a-8bb9-4b0a-b642-a299f744de67) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/704bbb39-0042-486e-bb73-f9dcf292e86d) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/4118d2e0-1a9e-4455-a95d-59c648ec4eb9) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/54d8ada9-c0d3-4669-940d-c0a14f2f0535) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/23d82d3f-bcb2-4762-becf-e2b967dfde3e) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/576cc92d-2431-439c-90cd-b62a9445875b) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/2643e32b-cf27-499f-865b-8d6ff2f6a58e) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/c6d5e8db-f2e9-4f7f-a741-94daecf05258) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/568c91fb-27f8-4915-ad59-032815c2f8f8) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/418507f9-04e1-45be-bf15-ea6ab43d9c96) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/97e2a71a-9dcb-4630-b421-d1e447f996b2) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/e282e06c-c6c9-466d-ac00-33aed83d9980) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/caff7acc-c77e-4e56-a265-619471666132) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/5de92b40-d8e9-4d1b-ba4e-85edc799a7ed) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/285cfec1-d2ac-477d-9979-55e5f7452fe0) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/0dc0875b-5cbe-4867-ac02-5c32ee6e22d2) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/947c107b-c85d-4a6a-a395-23a737dab3f3)
-
+![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/12185df4-a8ec-43fb-b8fc-6cb4e0729964) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/316412e9-c72c-4f44-a61b-c794c2b13a99) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/3da91bf4-f39c-42b2-8707-bf9340ca32ce) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/1608a904-91f9-4e31-a53b-205289ee2a9e) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/1f74106d-759d-4d3c-b6e2-3bf9887ea515) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/f069142c-b4c1-4e26-86e9-87f240edc43b) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/6eef425d-b4c6-4798-9f77-17d25c552f2a) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/375a93a8-640c-4988-b8eb-fca9226c5c98) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/cbf5f967-8e58-49ce-83d6-af4e7598da30) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/cd82ac28-74c9-4a2a-a8f2-bf1c63b71fc0) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/631a8d11-8599-4abc-820e-c734d9c75ecd) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/8a5afbf9-c01f-474b-9fa4-579cc7875c79) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/6496ed6b-fc53-40fb-b373-ca7f7dfa616a) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/a67e66a8-5193-4f85-9670-6f058cbb3a14) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/6542d94c-1775-4c10-b8cd-42055a9bb8d0) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/750c3246-7a6c-4934-8350-79c0482ace2f) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/3796ed5a-2339-49f2-ad20-21d98e6f8075) ![image](https://github.com/twiinArmagedd0n2/twiinArmagedd0n2/assets/147735603/3f3c9f92-1295-4103-98c6-a63bda1f5a35)
 <p align="center">
- <img width="200" src="https://cdn.discordapp.com/attachments/1164982936597176391/1164983653873496145/stamp_template_by_chirilas_dhbj3n-fullview2.png?ex=65453293&is=6532bd93&hm=28c3aab7c2727c251bf1bcd784ebb4c517d321b8adb3f1395b5ecea0c9f2dc90&"
- alt="daevestirder">
-</p>
+    <img width="200" src="https://cdn.discordapp.com/attachments/1164982936597176391/1164983591546142773/stamp_template_by_chirilas_dhbj3n-fullview3.png?ex=65453284&is=6532bd84&hm=f7eab1da9db5fbf15abe9b234ea5f1e37096ebc79b8f092f3a6277e570d8f0d4&" alt="connor">
+</p> <p align="center">
+    <img width="200" src="https://cdn.discordapp.com/attachments/1164982936597176391/1164983653873496145/stamp_template_by_chirilas_dhbj3n-fullview2.png?ex=65453293&is=6532bd93&hm=28c3aab7c2727c251bf1bcd784ebb4c517d321b8adb3f1395b5ecea0c9f2dc90&" alt="connor">
+    </p>
 
 <p align="center">
 𝗯𝗹𝗶𝗻𝗸𝗶𝗲𝘀 𝗰𝗼𝗹𝗹𝗲𝗰𝘁𝗶𝗼𝗻 ✦
 </p>
+
+
+
+
+
+
+
+
+
 
 
 
