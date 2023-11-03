@@ -6,7 +6,8 @@
 > artist is: Stealyourmeal on tumbler
 
 \\<p align="center">
-check out my [g](https://postal.123guestbook.com)uestbook ★
+check out my [g](https://postal.123guestbook.com)uestbook 
+I love my silly computer friends ★
 </p>
 
 \\<p align="center">
