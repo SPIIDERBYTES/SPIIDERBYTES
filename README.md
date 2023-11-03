@@ -8,9 +8,13 @@
 \\<p align="center">
 check out my [g](https://postal.123guestbook.com)uestbook 
 </p>
-  
+
 \\<p align="center">
-link/sol (★) he/they . [o](https://pronouns.cc/@spoileralertzz)sdd 1-b system
+check out my [r](https://rentry.co/twiinbatz)entry
+</p>
+
+\\<p align="center">
+link/sol (★) he/they . [o](https://pronouns.cc/@twiinbatz)sdd 1-b system
 </p>
 
 
