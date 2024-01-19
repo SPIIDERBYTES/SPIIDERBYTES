@@ -31,7 +31,7 @@ a rentry about all of that is currently being made so i'll link it when it's fin
 </p>
 
 <p align="center">
-𝘄𝗵𝗶𝘀𝗽𝗲𝗿 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 most times, I'm usually afk or offtab.
+𝘄𝗵𝗶𝘀𝗽𝗲𝗿 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 most times, I'm usually afk or offtab. feel free to c+h!
 </p>
 
 <p align="center">
