@@ -10,7 +10,7 @@ General info for fellow PT players :
 
 </p>
 <p align="center">
-   :: @/𝗕𝘆𝘁𝗲 + Link + 𝗦𝗼𝗹 ;
+   :: @/𝗕𝘆𝘁𝗲 + Dude + Ursheen ;
 
 </p>
 <p align="center">
