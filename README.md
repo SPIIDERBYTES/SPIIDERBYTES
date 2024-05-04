@@ -43,7 +43,7 @@ https://rentry.co/AMBIGUOUSBLOODED
 https://twitter.com/SPIDERBBYTE
 </p>
 <p align="center">
- <img src="https://file.garden/ZRfaX7xMiQQHiMQP/FEEDMYTAMANOTCHI.png" width="100"/>
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/FEEDMYTAMANOTCHI.png" width="200"/>
 </p>
 <p align="center">
 https://tamanotchi.world/12295c
@@ -52,6 +52,11 @@ https://tamanotchi.world/12295c
 <p align="center">
  <img src="https://file.garden/ZRfaX7xMiQQHiMQP/0IJUHNBIKN.png" width="500"/>
 </p>
+
+<p align="center">
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/FOLKVFBMJ.png" width="400"/>
+</p>
+
 
 
 
