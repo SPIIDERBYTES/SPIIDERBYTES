@@ -1,6 +1,6 @@
 <p id="header" align="center"> art is by @jessebutchman on tumblr!
 </p> 
-<p id="header" align="center"> pfp by @5weetmeat on tumblr
+<p id="header" align="center"> pfp by @domut on pinterest
  
 </p>
  <p id="header" align="center">
