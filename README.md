@@ -6,8 +6,13 @@ can also add width="400" to the img src part -->
  <img src="https://file.garden/ZRfaX7xMiQQHiMQP/spiderbyte11.png"/> 
 </p>
 <p align="center">
- <img src="https://file.garden/ZRfaX7xMiQQHiMQP/jellyfish.gif"/> 
+ <img src="https://gifcity.carrd.co/assets/images/gallery38/151b9a0b.gif?v=e3c0bc0f"width="400"/> 
 </p>
+<p align="center">
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/roxyandfefgithubbanner.png"width="700"/> 
+</p>
+
+
 
 
 
