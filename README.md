@@ -3,7 +3,7 @@
 can also add width="400" to the img src part -->
 
 <p align="center">
- <img src="https://file.garden/ZRfaX7xMiQQHiMQP/spiderbyte11.png"/> 
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/spiderbyteqewewq.png"/> 
 </p>
 <p align="center">
  <img src="https://gifcity.carrd.co/assets/images/gallery38/151b9a0b.gif?v=e3c0bc0f"width="400"/> 
