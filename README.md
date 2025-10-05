@@ -20,15 +20,12 @@ can also add width="400" to the img src part -->
 <p align="center">
  <img src="https://file.garden/ZRfaX7xMiQQHiMQP/dsvsvs.png"width="600"/> 
 </p>
-<p align="center">
- <img src="https://gifcity.carrd.co/assets/images/gallery45/03c08d79.gif?v=e3c0bc0f"/> 
-</p>
+
 <p align="center">
  <img src="https://file.garden/ZRfaX7xMiQQHiMQP/vdsvvds.png"width="500"/> 
 </p>
-
-
-
-
+<p align="center">
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/krisandnoelle.png"width="100"/> 
+</p>
 
 
