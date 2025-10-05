@@ -28,4 +28,3 @@ can also add width="400" to the img src part -->
  <img src="https://file.garden/ZRfaX7xMiQQHiMQP/krisandnoelle.png"width="100"/> 
 </p>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=SPIIDERBYTES&color=FF84F4)
